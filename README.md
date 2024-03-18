@@ -2,7 +2,7 @@
 - 👀 I’m interested in Art/Drawing/Caligraphy
 - 🌱 I’m currently learning Computer Science
 - 💞️ I’m looking to collaborate on a CSIS project
-- 📫 How to reach me via email: kdeluna-soto@outlook.come
+- 📫 How to reach me via email: kdeluna-soto@outlook.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I have never broke a bone in my body
 
